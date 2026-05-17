@@ -64,4 +64,4 @@
 
 ## 👤 Autor
 
-> Reemplazá con tu nombre, LinkedIn y contacto.
+> Sofía  mail torreprsofia@gmail.com https://www.linkedin.com/in/sophie-t-878488249/
