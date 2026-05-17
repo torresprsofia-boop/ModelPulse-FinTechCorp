@@ -62,6 +62,8 @@
 
 ---
 
-## 👤 Autor
+## 👤 Autora
 
-> Sofía  mail torreprsofia@gmail.com https://www.linkedin.com/in/sophie-t-878488249/
+> Sofía Torres 
+mail torreprsofia@gmail.com 
+https://www.linkedin.com/in/sophie-t-878488249/
